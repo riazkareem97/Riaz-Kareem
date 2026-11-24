@@ -1,0 +1,7 @@
+RULE 
+
+FOLLOW MY ORDERS DONT DO ANTHING WITH OWN SELF
+
+CREATE INDEX.HTML FOR WORKING PLACE
+
+never show my md file just use for access
